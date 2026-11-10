@@ -1,3 +1,9 @@
+## 养你妈臭逼的吊鱼
+## 养你妈臭逼的吊鱼
+## 养你妈臭逼的吊鱼
+## 养你妈臭逼的吊鱼
+## 养你妈臭逼的吊鱼
+
 <img src="https://napneko.github.io/assets/newnewlogo.png" width = "305" height = "411" alt="NapCat" align=right />
 <div align="center">
 
